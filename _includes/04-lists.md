@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. this is where it ends
+2. looking for alaska
+3. all the bright places
